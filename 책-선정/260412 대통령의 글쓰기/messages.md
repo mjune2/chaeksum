@@ -2,7 +2,7 @@
 
 ### [2026-04-05T14:15:03.458000+00:00] pappasco
 강원국
-- 첨부: `책-선정\260412 대통령의 글쓰기\1490354085646307470_46852137619.20260331104438.jpg`
+![46852137619.20260331104438.jpg](1490354085646307470_46852137619.20260331104438.jpg)
 
 ### [2026-04-12T12:04:52.336000+00:00] pappasco
 260412 대통령의 글쓰기
@@ -41,9 +41,9 @@ https://cafe.naver.com/triedstudypro/4?art=ZXh0ZXJuYWwtc2VydmljZS1uYXZlci1zZWFyY
 신대표님 : 절박함 강조. 읽음. - 사유가 꽃힘
 
 이작가님 : 대통령별로 성향 알수있었음. 시대의 흐름 알수 있었음.
-- 첨부: `책-선정\260412 대통령의 글쓰기\1492858077882613922_embed_0_thumbnail.png`
+![embed_0_thumbnail.png](1492858077882613922_embed_0_thumbnail.png)
 
 ### [2026-04-12T12:09:14.806000+00:00] pappasco
 https://youtu.be/EDwIB4OrkDA?si=61xfbUGCXRWwzGst
-- 첨부: `책-선정\260412 대통령의 글쓰기\1492859139364360222_embed_0_thumbnail.jpg`
-- 첨부: `책-선정\260412 대통령의 글쓰기\1492859139364360222_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1492859139364360222_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1492859139364360222_embed_0_video.jpg)

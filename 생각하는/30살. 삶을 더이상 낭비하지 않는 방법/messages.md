@@ -4,5 +4,5 @@
 https://youtube.com/watch?v=2PKZWfPTSbI
 
 모든걸 의심해. 뻔한거 조차 특히 뻔한 것일수록 자신을 알아야 세상에 유일한 기여를 할 수 있어.
-- 첨부: `생각하는\30살. 삶을 더이상 낭비하지 않는 방법\1463018632694075455_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\30살. 삶을 더이상 낭비하지 않는 방법\1463018632694075455_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1463018632694075455_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1463018632694075455_embed_0_video.jpg)

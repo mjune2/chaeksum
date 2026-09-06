@@ -4,5 +4,5 @@
 https://youtu.be/RNdK0iSpWDk?si=1h9GS0pSvUZA6Woo
 
 시대정신
-- 첨부: `추천하는\2025 포카리스웨트 '너는 분명, 누군가의 태양' 코멘터리\1496475089405739018_embed_0_thumbnail.jpg`
-- 첨부: `추천하는\2025 포카리스웨트 '너는 분명, 누군가의 태양' 코멘터리\1496475089405739018_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1496475089405739018_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1496475089405739018_embed_0_video.jpg)

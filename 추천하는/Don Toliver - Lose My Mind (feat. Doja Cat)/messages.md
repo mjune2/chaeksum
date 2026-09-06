@@ -6,5 +6,5 @@ https://youtu.be/BYwF8ODtpvo
 f1더무비 좋았다. 또보러갈까나.
 
 이런 내용의 책 찾습니다
-- 첨부: `추천하는\Don Toliver - Lose My Mind (feat. Doja Cat)\1396350768004599931_embed_0_thumbnail.jpg`
-- 첨부: `추천하는\Don Toliver - Lose My Mind (feat. Doja Cat)\1396350768004599931_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1396350768004599931_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1396350768004599931_embed_0_video.jpg)

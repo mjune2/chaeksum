@@ -4,5 +4,5 @@
 https://youtu.be/5H2-dacBt9w
 
 나는 어떤 전시관 몇층에 어울려
-- 첨부: `생각하는\내 인생에 자만추는 글렀다고 생각한 사람들에게\1510835672066424862_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\내 인생에 자만추는 글렀다고 생각한 사람들에게\1510835672066424862_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1510835672066424862_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1510835672066424862_embed_0_video.jpg)

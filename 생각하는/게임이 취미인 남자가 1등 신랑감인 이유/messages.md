@@ -4,5 +4,5 @@
 https://youtube.com/watch?v=tlmbvPeVduQ
 
 아 철이 없는 모습이 뭔지 알았다
-- 첨부: `생각하는\게임이 취미인 남자가 1등 신랑감인 이유\1468951138643738846_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\게임이 취미인 남자가 1등 신랑감인 이유\1468951138643738846_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1468951138643738846_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1468951138643738846_embed_0_video.jpg)

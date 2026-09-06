@@ -3,5 +3,5 @@
 ### [2025-11-04T03:17:12.864000+00:00] pappasco
 https://youtu.be/Du1aeNElueA?si=AEnp2s2dSya5qA3q
 가장 중요한 1순위는 뭔가?
-- 첨부: `생각하는\개발 감각 있는지 확인하는 방법\1435105578404941845_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\개발 감각 있는지 확인하는 방법\1435105578404941845_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1435105578404941845_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1435105578404941845_embed_0_video.jpg)

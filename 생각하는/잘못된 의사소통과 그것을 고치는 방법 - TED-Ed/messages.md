@@ -4,5 +4,5 @@
 https://youtu.be/gCfzeONu3Mo?si=rHA4xcm1k0j_V7oC
 
 수동적인 듣기와 적극적인 경청은 다르다는 것을 인지하세요.
-- 첨부: `생각하는\잘못된 의사소통과 그것을 고치는 방법 - TED-Ed\1414511642158305340_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\잘못된 의사소통과 그것을 고치는 방법 - TED-Ed\1414511642158305340_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1414511642158305340_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1414511642158305340_embed_0_video.jpg)

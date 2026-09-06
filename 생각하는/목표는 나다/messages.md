@@ -2,8 +2,8 @@
 
 ### [2025-07-12T14:03:16.111000+00:00] pappasco
 https://youtu.be/1Ch5VlfEEX8
-- 첨부: `생각하는\목표는 나다\1393593558702751886_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\목표는 나다\1393593558702751886_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1393593558702751886_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1393593558702751886_embed_0_video.jpg)
 
 ### [2025-12-21T12:42:14.139000+00:00] pappasco
 ⚡️ 핵심 요약

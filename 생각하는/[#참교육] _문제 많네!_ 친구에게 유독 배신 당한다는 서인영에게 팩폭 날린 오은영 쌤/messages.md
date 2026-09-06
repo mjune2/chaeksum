@@ -4,5 +4,5 @@
 https://youtu.be/O45oHASQk4U
 
 욱하기전에 음~~ 해보기
-- 첨부: `생각하는\[#참교육] _문제 많네!_ 친구에게 유독 배신 당한다는 서인영에게 팩폭 날린 오은영 쌤\1495748909035945995_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\[#참교육] _문제 많네!_ 친구에게 유독 배신 당한다는 서인영에게 팩폭 날린 오은영 쌤\1495748909035945995_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1495748909035945995_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1495748909035945995_embed_0_video.jpg)

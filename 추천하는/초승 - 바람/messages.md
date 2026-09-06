@@ -5,5 +5,5 @@ https://youtu.be/fpqy0lWxxKk
 
 콘서트 보고왔는데 좋았다.
 이런 느낌의 책 추천받습니다.
-- 첨부: `추천하는\초승 - 바람\1393894182258741258_embed_0_thumbnail.jpg`
-- 첨부: `추천하는\초승 - 바람\1393894182258741258_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1393894182258741258_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1393894182258741258_embed_0_video.jpg)

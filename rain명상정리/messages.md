@@ -28,16 +28,16 @@ https://youtube.com/shorts/K14OCaqab20?feature=shared
 060325화 
 060225월
 https://youtube.com/shorts/2RBhMoH2iVk?feature=shared
-- 첨부: `rain명상정리\1391697232906027110_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697232906027110_embed_0_video.jpg`
-- 첨부: `rain명상정리\1391697232906027110_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697232906027110_embed_1_video.jpg`
-- 첨부: `rain명상정리\1391697232906027110_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697232906027110_embed_2_video.jpg`
-- 첨부: `rain명상정리\1391697232906027110_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697232906027110_embed_3_video.jpg`
-- 첨부: `rain명상정리\1391697232906027110_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697232906027110_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1391697232906027110_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1391697232906027110_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1391697232906027110_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1391697232906027110_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1391697232906027110_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1391697232906027110_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1391697232906027110_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1391697232906027110_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1391697232906027110_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1391697232906027110_embed_4_video.jpg)
 
 ### [2025-07-07T08:28:27.556000+00:00] pappasco
 힘을 주는 음악을 선정. 
@@ -72,16 +72,16 @@ https://youtube.com/shorts/c1JrCxqIqWs?feature=shared
 060925월
 https://youtube.com/shorts/EQ_uR11VoE0?feature=shared
 오늘 루틴 올립니다. 배경음악은 가호의 노래 '시작'입니다.
-- 첨부: `rain명상정리\1391697361868427414_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697361868427414_embed_0_video.jpg`
-- 첨부: `rain명상정리\1391697361868427414_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697361868427414_embed_1_video.jpg`
-- 첨부: `rain명상정리\1391697361868427414_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697361868427414_embed_2_video.jpg`
-- 첨부: `rain명상정리\1391697361868427414_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697361868427414_embed_3_video.jpg`
-- 첨부: `rain명상정리\1391697361868427414_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697361868427414_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1391697361868427414_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1391697361868427414_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1391697361868427414_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1391697361868427414_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1391697361868427414_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1391697361868427414_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1391697361868427414_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1391697361868427414_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1391697361868427414_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1391697361868427414_embed_4_video.jpg)
 
 ### [2025-07-07T08:28:50.213000+00:00] pappasco
 '이 별에 필요한' 넷플릭스 영화를 감명깊게 봄. 요즘 한국 애니메이션도 촌스럽지않고 잘나오는구나.
@@ -117,16 +117,16 @@ https://youtube.com/shorts/crsbafD4Am8?feature=shared
 061625월
 https://youtube.com/shorts/6x4P7S4rcrA?feature=shared
 오늘 루틴 올립니다. 배경음악은 루시 'Hero' 입니다.
-- 첨부: `rain명상정리\1391697456898773093_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697456898773093_embed_0_video.jpg`
-- 첨부: `rain명상정리\1391697456898773093_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697456898773093_embed_1_video.jpg`
-- 첨부: `rain명상정리\1391697456898773093_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697456898773093_embed_2_video.jpg`
-- 첨부: `rain명상정리\1391697456898773093_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697456898773093_embed_3_video.jpg`
-- 첨부: `rain명상정리\1391697456898773093_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697456898773093_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1391697456898773093_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1391697456898773093_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1391697456898773093_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1391697456898773093_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1391697456898773093_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1391697456898773093_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1391697456898773093_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1391697456898773093_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1391697456898773093_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1391697456898773093_embed_4_video.jpg)
 
 ### [2025-07-07T08:29:09.739000+00:00] pappasco
 엔플라잉 노래에서 청춘이 느껴지는 내용이 많음.
@@ -162,16 +162,16 @@ https://youtube.com/shorts/BT6JttVEiEs?feature=shared
 062325월
 오늘 루틴 올립니다. 배경음악은 디어에반핸슨 ost 'You Will Be Found' 입니다.
 https://youtube.com/shorts/mcETgQszh-0?feature=shared
-- 첨부: `rain명상정리\1391697538796490862_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697538796490862_embed_0_video.jpg`
-- 첨부: `rain명상정리\1391697538796490862_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697538796490862_embed_1_video.jpg`
-- 첨부: `rain명상정리\1391697538796490862_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697538796490862_embed_2_video.jpg`
-- 첨부: `rain명상정리\1391697538796490862_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697538796490862_embed_3_video.jpg`
-- 첨부: `rain명상정리\1391697538796490862_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697538796490862_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1391697538796490862_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1391697538796490862_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1391697538796490862_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1391697538796490862_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1391697538796490862_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1391697538796490862_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1391697538796490862_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1391697538796490862_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1391697538796490862_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1391697538796490862_embed_4_video.jpg)
 
 ### [2025-07-07T08:29:32.132000+00:00] pappasco
 명상을 한지도 한달이 되었다.
@@ -208,16 +208,16 @@ https://youtube.com/shorts/FstD2oZZbkA?feature=shared
 063025월
 오늘 루틴 올립니다. 배경음악은 맘마미아 ost 'I Have A Dream' 입니다.
 https://youtube.com/shorts/Q643XP51p0w?feature=shared
-- 첨부: `rain명상정리\1391697632719536211_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697632719536211_embed_0_video.jpg`
-- 첨부: `rain명상정리\1391697632719536211_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697632719536211_embed_1_video.jpg`
-- 첨부: `rain명상정리\1391697632719536211_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697632719536211_embed_2_video.jpg`
-- 첨부: `rain명상정리\1391697632719536211_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697632719536211_embed_3_video.jpg`
-- 첨부: `rain명상정리\1391697632719536211_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1391697632719536211_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1391697632719536211_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1391697632719536211_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1391697632719536211_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1391697632719536211_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1391697632719536211_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1391697632719536211_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1391697632719536211_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1391697632719536211_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1391697632719536211_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1391697632719536211_embed_4_video.jpg)
 
 ### [2025-07-13T21:09:02.323000+00:00] pappasco
 071325일
@@ -254,16 +254,16 @@ https://youtube.com/shorts/G0tUinDG5r4?feature=shared
 오늘 루틴 올립니다. 배경음악은 송소희 'Not a Dream' 입니다.
 https://youtube.com/shorts/DvT5ombZ-tI?feature=shared
 월요일은 아침형인간 시작.
-- 첨부: `rain명상정리\1394063095147794504_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1394063095147794504_embed_0_video.jpg`
-- 첨부: `rain명상정리\1394063095147794504_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1394063095147794504_embed_1_video.jpg`
-- 첨부: `rain명상정리\1394063095147794504_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1394063095147794504_embed_2_video.jpg`
-- 첨부: `rain명상정리\1394063095147794504_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1394063095147794504_embed_3_video.jpg`
-- 첨부: `rain명상정리\1394063095147794504_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1394063095147794504_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1394063095147794504_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1394063095147794504_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1394063095147794504_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1394063095147794504_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1394063095147794504_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1394063095147794504_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1394063095147794504_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1394063095147794504_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1394063095147794504_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1394063095147794504_embed_4_video.jpg)
 
 ### [2025-07-20T20:18:56.980000+00:00] pappasco
 072025일
@@ -300,16 +300,16 @@ https://youtube.com/shorts/PTJdRyBZAGs?feature=shared
 오늘 루틴 올립니다. 배경음악은 터치드 '새벽별' 입니다.
 https://youtube.com/shorts/6cYJAWE62ms?feature=shared
 새벽에 일어나는 날. 벌써 환하다.
-- 첨부: `rain명상정리\1396587204884824084_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1396587204884824084_embed_0_video.jpg`
-- 첨부: `rain명상정리\1396587204884824084_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1396587204884824084_embed_1_video.jpg`
-- 첨부: `rain명상정리\1396587204884824084_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1396587204884824084_embed_2_video.jpg`
-- 첨부: `rain명상정리\1396587204884824084_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1396587204884824084_embed_3_video.jpg`
-- 첨부: `rain명상정리\1396587204884824084_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1396587204884824084_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1396587204884824084_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1396587204884824084_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1396587204884824084_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1396587204884824084_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1396587204884824084_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1396587204884824084_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1396587204884824084_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1396587204884824084_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1396587204884824084_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1396587204884824084_embed_4_video.jpg)
 
 ### [2025-07-28T01:31:33.343000+00:00] pappasco
 072725일
@@ -346,16 +346,16 @@ https://youtube.com/shorts/hZXijHJUVFw?feature=shared
 https://youtube.com/shorts/U7I9OJltyVw?feature=shared
 장범준 - 여름밤에 오! 사랑의 멜로디 (Oh! Summer night, Romantic Melodies)
 브레드가 미국간다니 아쉽다. 버스커버스커 좋다.
-- 첨부: `rain명상정리\1399202589832118303_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1399202589832118303_embed_0_video.jpg`
-- 첨부: `rain명상정리\1399202589832118303_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1399202589832118303_embed_1_video.jpg`
-- 첨부: `rain명상정리\1399202589832118303_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1399202589832118303_embed_2_video.jpg`
-- 첨부: `rain명상정리\1399202589832118303_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1399202589832118303_embed_3_video.jpg`
-- 첨부: `rain명상정리\1399202589832118303_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1399202589832118303_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1399202589832118303_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1399202589832118303_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1399202589832118303_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1399202589832118303_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1399202589832118303_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1399202589832118303_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1399202589832118303_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1399202589832118303_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1399202589832118303_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1399202589832118303_embed_4_video.jpg)
 
 ### [2025-08-05T01:48:23.530000+00:00] pappasco
 080325일
@@ -392,16 +392,16 @@ Drunken Tiger '소외된 모두, 왼발을 한 보 앞으로!'
 https://youtube.com/shorts/W1Xhcui_Ido?feature=shared
 DAY6(데이식스) '행복했던 날들이었다'
 즐거웠다. 여행마무리 노래.
-- 첨부: `rain명상정리\1402105929788559521_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1402105929788559521_embed_0_video.jpg`
-- 첨부: `rain명상정리\1402105929788559521_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1402105929788559521_embed_1_video.jpg`
-- 첨부: `rain명상정리\1402105929788559521_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1402105929788559521_embed_2_video.jpg`
-- 첨부: `rain명상정리\1402105929788559521_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1402105929788559521_embed_3_video.jpg`
-- 첨부: `rain명상정리\1402105929788559521_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1402105929788559521_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1402105929788559521_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1402105929788559521_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1402105929788559521_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1402105929788559521_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1402105929788559521_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1402105929788559521_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1402105929788559521_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1402105929788559521_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1402105929788559521_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1402105929788559521_embed_4_video.jpg)
 
 ### [2025-08-19T01:00:23.324000+00:00] pappasco
 081725일
@@ -474,16 +474,16 @@ OneRepublic 'I Ain't Worried'
 https://youtube.com/shorts/zR4gxqKPF8U?feature=shared
 SEVENTEEN(세븐틴)  'Holiday'
 이렇게 놀면 더 재밌었겠다
-- 첨부: `rain명상정리\1407167279447277688_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1407167279447277688_embed_0_video.jpg`
-- 첨부: `rain명상정리\1407167279447277688_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1407167279447277688_embed_1_video.jpg`
-- 첨부: `rain명상정리\1407167279447277688_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1407167279447277688_embed_2_video.jpg`
-- 첨부: `rain명상정리\1407167279447277688_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1407167279447277688_embed_3_video.jpg`
-- 첨부: `rain명상정리\1407167279447277688_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1407167279447277688_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1407167279447277688_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1407167279447277688_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1407167279447277688_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1407167279447277688_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1407167279447277688_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1407167279447277688_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1407167279447277688_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1407167279447277688_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1407167279447277688_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1407167279447277688_embed_4_video.jpg)
 
 ### [2025-08-25T02:32:16.098000+00:00] pappasco
 082425일
@@ -520,16 +520,16 @@ https://youtube.com/shorts/0CdbrmMaHgc?feature=shared
 https://youtube.com/shorts/NdvHYrJycO0?feature=shared
 박진영 '날 떠나지마'
 국중박 곤룡포 사러왔다. 살수있을까.
-- 첨부: `rain명상정리\1409364728891047996_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1409364728891047996_embed_0_video.jpg`
-- 첨부: `rain명상정리\1409364728891047996_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1409364728891047996_embed_1_video.jpg`
-- 첨부: `rain명상정리\1409364728891047996_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1409364728891047996_embed_2_video.jpg`
-- 첨부: `rain명상정리\1409364728891047996_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1409364728891047996_embed_3_video.jpg`
-- 첨부: `rain명상정리\1409364728891047996_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1409364728891047996_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1409364728891047996_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1409364728891047996_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1409364728891047996_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1409364728891047996_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1409364728891047996_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1409364728891047996_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1409364728891047996_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1409364728891047996_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1409364728891047996_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1409364728891047996_embed_4_video.jpg)
 
 ### [2025-09-02T03:18:24.901000+00:00] pappasco
 083125일
@@ -567,16 +567,16 @@ https://youtube.com/shorts/coWWNE2F3e8?feature=shared
 https://youtube.com/shorts/JPLUG06fGgQ?feature=shared
 시그널 삽입곡 김윤아 '길'
 시그널 재밌었다
-- 첨부: `rain명상정리\1412275445017215076_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1412275445017215076_embed_0_video.jpg`
-- 첨부: `rain명상정리\1412275445017215076_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1412275445017215076_embed_1_video.jpg`
-- 첨부: `rain명상정리\1412275445017215076_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1412275445017215076_embed_2_video.jpg`
-- 첨부: `rain명상정리\1412275445017215076_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1412275445017215076_embed_3_video.jpg`
-- 첨부: `rain명상정리\1412275445017215076_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1412275445017215076_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1412275445017215076_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1412275445017215076_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1412275445017215076_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1412275445017215076_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1412275445017215076_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1412275445017215076_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1412275445017215076_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1412275445017215076_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1412275445017215076_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1412275445017215076_embed_4_video.jpg)
 
 ### [2025-09-05T21:43:23.398000+00:00] pappasco
 090624토
@@ -608,24 +608,24 @@ https://youtube.com/shorts/16HMm0HNI3g?feature=shared
 https://youtube.com/shorts/c_HlYhKmOzI?feature=shared
 aespa 커버 'Dreams Come True'
 꿈아 이뤄져라
-- 첨부: `rain명상정리\1413640684665176145_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1413640684665176145_embed_0_video.jpg`
-- 첨부: `rain명상정리\1413640684665176145_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1413640684665176145_embed_1_video.jpg`
-- 첨부: `rain명상정리\1413640684665176145_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1413640684665176145_embed_2_video.jpg`
-- 첨부: `rain명상정리\1413640684665176145_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1413640684665176145_embed_3_video.jpg`
-- 첨부: `rain명상정리\1413640684665176145_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1413640684665176145_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1413640684665176145_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1413640684665176145_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1413640684665176145_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1413640684665176145_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1413640684665176145_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1413640684665176145_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1413640684665176145_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1413640684665176145_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1413640684665176145_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1413640684665176145_embed_4_video.jpg)
 
 ### [2025-09-07T01:56:06.602000+00:00] pappasco
 090725일
 https://youtube.com/shorts/F1w39_qa0YA?feature=shared
 오피셜히게단디즘 '115만 킬로의 필름'
 인생은 80년치 필름. 좋은 비유다.
-- 첨부: `rain명상정리\1414066671617966110_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1414066671617966110_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1414066671617966110_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1414066671617966110_embed_0_video.jpg)
 
 ### [2025-09-13T21:32:37.890000+00:00] pappasco
 091425일
@@ -662,16 +662,16 @@ https://youtube.com/shorts/pgkjTGD4DD0?feature=shared
 https://youtube.com/shorts/RVG3HxDBTGc?feature=shared
 아이유 'Celebrity'
 구부정 하게 커버린 나
-- 첨부: `rain명상정리\1416537080133193840_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1416537080133193840_embed_0_video.jpg`
-- 첨부: `rain명상정리\1416537080133193840_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1416537080133193840_embed_1_video.jpg`
-- 첨부: `rain명상정리\1416537080133193840_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1416537080133193840_embed_2_video.jpg`
-- 첨부: `rain명상정리\1416537080133193840_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1416537080133193840_embed_3_video.jpg`
-- 첨부: `rain명상정리\1416537080133193840_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1416537080133193840_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1416537080133193840_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1416537080133193840_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1416537080133193840_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1416537080133193840_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1416537080133193840_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1416537080133193840_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1416537080133193840_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1416537080133193840_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1416537080133193840_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1416537080133193840_embed_4_video.jpg)
 
 ### [2025-09-20T21:49:10.932000+00:00] pappasco
 092125일
@@ -708,16 +708,16 @@ G-DRAGON  'HOME SWEET HOME'
 https://youtube.com/shorts/tqJHPxpGmc4?feature=shared
 심규선 '살아남은 아이'
 가사가 좋다. 좋은 말이다.
-- 첨부: `rain명상정리\1419077960312557700_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1419077960312557700_embed_0_video.jpg`
-- 첨부: `rain명상정리\1419077960312557700_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1419077960312557700_embed_1_video.jpg`
-- 첨부: `rain명상정리\1419077960312557700_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1419077960312557700_embed_2_video.jpg`
-- 첨부: `rain명상정리\1419077960312557700_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1419077960312557700_embed_3_video.jpg`
-- 첨부: `rain명상정리\1419077960312557700_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1419077960312557700_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1419077960312557700_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1419077960312557700_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1419077960312557700_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1419077960312557700_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1419077960312557700_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1419077960312557700_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1419077960312557700_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1419077960312557700_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1419077960312557700_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1419077960312557700_embed_4_video.jpg)
 
 ### [2025-09-28T04:29:36.487000+00:00] pappasco
 092825일
@@ -754,16 +754,16 @@ https://youtube.com/shorts/GaShL5gRnbQ?feature=shared
 https://youtube.com/shorts/h2l2BCA_OLE?feature=shared
 알리 'Shining Is Blue'
 다큐3일 273번 버스 김난수씨 추천곡. 용기를 내자.
-- 첨부: `rain명상정리\1421715445853061211_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1421715445853061211_embed_0_video.jpg`
-- 첨부: `rain명상정리\1421715445853061211_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1421715445853061211_embed_1_video.jpg`
-- 첨부: `rain명상정리\1421715445853061211_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1421715445853061211_embed_2_video.jpg`
-- 첨부: `rain명상정리\1421715445853061211_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1421715445853061211_embed_3_video.jpg`
-- 첨부: `rain명상정리\1421715445853061211_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1421715445853061211_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1421715445853061211_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1421715445853061211_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1421715445853061211_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1421715445853061211_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1421715445853061211_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1421715445853061211_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1421715445853061211_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1421715445853061211_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1421715445853061211_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1421715445853061211_embed_4_video.jpg)
 
 ### [2025-10-13T13:33:48.261000+00:00] pappasco
 100325금
@@ -790,16 +790,16 @@ https://youtube.com/shorts/EfxlvZVaZoI?feature=shared
 https://youtube.com/shorts/oD82SjnWb90?feature=shared
 Red Hot Chili Peppers  'Can't Stop'
 멈추고 싶지 않다 계속 가자
-- 첨부: `rain명상정리\1427288215303356497_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1427288215303356497_embed_0_video.jpg`
-- 첨부: `rain명상정리\1427288215303356497_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1427288215303356497_embed_1_video.jpg`
-- 첨부: `rain명상정리\1427288215303356497_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1427288215303356497_embed_2_video.jpg`
-- 첨부: `rain명상정리\1427288215303356497_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1427288215303356497_embed_3_video.jpg`
-- 첨부: `rain명상정리\1427288215303356497_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1427288215303356497_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1427288215303356497_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1427288215303356497_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1427288215303356497_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1427288215303356497_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1427288215303356497_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1427288215303356497_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1427288215303356497_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1427288215303356497_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1427288215303356497_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1427288215303356497_embed_4_video.jpg)
 
 ### [2025-10-13T13:34:13.087000+00:00] pappasco
 101125토
@@ -816,12 +816,12 @@ https://youtube.com/shorts/7RRtZ_eGu-w?si=e2lFeq26oDHmdl6C
 https://youtube.com/shorts/OevRwohaHZc?si=oG6MQE-zVBYXJrxp
 엔믹스 'O.O Part 2'
 누나 추천곡.
-- 첨부: `rain명상정리\1427288319431151667_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1427288319431151667_embed_0_video.jpg`
-- 첨부: `rain명상정리\1427288319431151667_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1427288319431151667_embed_1_video.jpg`
-- 첨부: `rain명상정리\1427288319431151667_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1427288319431151667_embed_2_video.jpg`
+![embed_0_thumbnail.jpg](1427288319431151667_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1427288319431151667_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1427288319431151667_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1427288319431151667_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1427288319431151667_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1427288319431151667_embed_2_video.jpg)
 
 ### [2025-11-05T07:44:01.006000+00:00] pappasco
 251030목
@@ -868,16 +868,16 @@ LAVEEN(라빈), TAEBIN(태빈) '오늘 난 말야'
 https://youtube.com/shorts/58lYhj9Moas?si=gsPgBf_Tk-dXPAfO
 DAY6 '하늘 위에서'
 일상으로 돌아왔다. 다시 가보자.
-- 첨부: `rain명상정리\1435535109284561017_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1435535109284561017_embed_0_video.jpg`
-- 첨부: `rain명상정리\1435535109284561017_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1435535109284561017_embed_1_video.jpg`
-- 첨부: `rain명상정리\1435535109284561017_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1435535109284561017_embed_2_video.jpg`
-- 첨부: `rain명상정리\1435535109284561017_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1435535109284561017_embed_3_video.jpg`
-- 첨부: `rain명상정리\1435535109284561017_embed_4_thumbnail.jpg`
-- 첨부: `rain명상정리\1435535109284561017_embed_4_video.jpg`
+![embed_0_thumbnail.jpg](1435535109284561017_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1435535109284561017_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1435535109284561017_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1435535109284561017_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1435535109284561017_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1435535109284561017_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1435535109284561017_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1435535109284561017_embed_3_video.jpg)
+![embed_4_thumbnail.jpg](1435535109284561017_embed_4_thumbnail.jpg)
+![embed_4_video.jpg](1435535109284561017_embed_4_video.jpg)
 
 ### [2025-11-10T05:21:22.276000+00:00] pappasco
 251108토
@@ -894,12 +894,12 @@ bbh '말하고 싶어도'
 https://youtube.com/shorts/c3Vjv01Yxw4?si=XcmZxABxbHM0swz8
 m-flo loves melody. & Ryohei / miss you
 추억이다. 여유 느낌. 요즘 열심히 산다고 정신없는데 한숨돌림.
-- 첨부: `rain명상정리\1437311150697091204_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1437311150697091204_embed_0_video.jpg`
-- 첨부: `rain명상정리\1437311150697091204_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1437311150697091204_embed_1_video.jpg`
-- 첨부: `rain명상정리\1437311150697091204_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1437311150697091204_embed_2_video.jpg`
+![embed_0_thumbnail.jpg](1437311150697091204_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1437311150697091204_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1437311150697091204_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1437311150697091204_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1437311150697091204_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1437311150697091204_embed_2_video.jpg)
 
 ### [2025-11-15T21:59:49.441000+00:00] pappasco
 251116일
@@ -921,11 +921,11 @@ yb '나는 나비'
 https://youtube.com/shorts/V-7g2q5nFwA?si=USWZEFHx1dBEHaL0
 Sacrifice - G.E.M
 롤드컵을 봤다. 페이커 대단하네
-- 첨부: `rain명상정리\1439374358887010464_embed_0_thumbnail.jpg`
-- 첨부: `rain명상정리\1439374358887010464_embed_0_video.jpg`
-- 첨부: `rain명상정리\1439374358887010464_embed_1_thumbnail.jpg`
-- 첨부: `rain명상정리\1439374358887010464_embed_1_video.jpg`
-- 첨부: `rain명상정리\1439374358887010464_embed_2_thumbnail.jpg`
-- 첨부: `rain명상정리\1439374358887010464_embed_2_video.jpg`
-- 첨부: `rain명상정리\1439374358887010464_embed_3_thumbnail.jpg`
-- 첨부: `rain명상정리\1439374358887010464_embed_3_video.jpg`
+![embed_0_thumbnail.jpg](1439374358887010464_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1439374358887010464_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1439374358887010464_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1439374358887010464_embed_1_video.jpg)
+![embed_2_thumbnail.jpg](1439374358887010464_embed_2_thumbnail.jpg)
+![embed_2_video.jpg](1439374358887010464_embed_2_video.jpg)
+![embed_3_thumbnail.jpg](1439374358887010464_embed_3_thumbnail.jpg)
+![embed_3_video.jpg](1439374358887010464_embed_3_video.jpg)

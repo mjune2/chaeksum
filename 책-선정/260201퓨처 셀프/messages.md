@@ -2,12 +2,12 @@
 
 ### [2026-02-09T01:44:15.549000+00:00] pappasco
 벤저민 하디
-- 첨부: `책-선정\260201퓨처 셀프\1470233808413655261_4.jpg`
+![4.jpg](1470233808413655261_4.jpg)
 
 ### [2026-02-09T01:44:35.944000+00:00] pappasco
 https://www.youtube.com/watch?v=KQIzsceJI6E
-- 첨부: `책-선정\260201퓨처 셀프\1470233893956227122_embed_0_thumbnail.jpg`
-- 첨부: `책-선정\260201퓨처 셀프\1470233893956227122_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1470233893956227122_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1470233893956227122_embed_0_video.jpg)
 
 ### [2026-02-09T01:45:59.338000+00:00] pappasco
 # 2/1
@@ -97,4 +97,4 @@ https://band.us/band/98814061/post/33
 
 ### [2026-02-09T02:08:27.514000+00:00] pappasco
 *(텍스트 없음)*
-- 첨부: `책-선정\260201퓨처 셀프\1470239898396131338_241016_futureself_work.pdf`
+- 첨부: [241016_futureself_work.pdf](1470239898396131338_241016_futureself_work.pdf)

@@ -3,5 +3,5 @@
 ### [2026-04-09T02:08:54.222000+00:00] pappasco
 https://youtu.be/Fs2eR4E_uCc?si=XTDp0S1AB-Sslujh
 후원한 사회복지재단에 사회복지사 현장실습을 감. 운명적인 만남.
-- 첨부: `생각하는\사회복지사 현장실습 후기\1491620894488006746_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\사회복지사 현장실습 후기\1491620894488006746_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1491620894488006746_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1491620894488006746_embed_0_video.jpg)

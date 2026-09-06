@@ -9,5 +9,5 @@ https://youtu.be/sXrTojj7fzE
 -먼저 주되, 도울 대상을 현명하게 선택한다.
 3.행복 관리틀 하는 사람
 -에너지를 지키고, 무리 없이 관계를 지속한다.
-- 첨부: `생각하는\30대, 인간 관계가 확 좋아지는 사람들의 특징 3가지\1411225758768304259_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\30대, 인간 관계가 확 좋아지는 사람들의 특징 3가지\1411225758768304259_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1411225758768304259_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1411225758768304259_embed_0_video.jpg)

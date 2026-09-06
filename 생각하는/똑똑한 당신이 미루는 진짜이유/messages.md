@@ -4,8 +4,8 @@
 https://youtube.com/watch?v=PwdT5InU8CI
 
 새로운 내가 되기 위한 과정은 엉망진창이고 고통스럽습니다
-- 첨부: `생각하는\똑똑한 당신이 미루는 진짜이유\1456280961099628575_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\똑똑한 당신이 미루는 진짜이유\1456280961099628575_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1456280961099628575_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1456280961099628575_embed_0_video.jpg)
 
 ### [2026-01-01T13:42:50.223000+00:00] pappasco
 바보처럼 느껴지는 순간을 견뎌야 합니다.

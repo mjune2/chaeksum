@@ -4,5 +4,5 @@
 https://youtu.be/06yYrdmME54?si=lD4j4jU27t0DTDsW&t=190
 
 진실을 향해 가려는 의지
-- 첨부: `생각하는\죠죠 5부 황금의 바람 - EP.28 당장이라도 무너져 내릴 것만 같은 하늘 아래에서 - 아바키오\1408345310454878348_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\죠죠 5부 황금의 바람 - EP.28 당장이라도 무너져 내릴 것만 같은 하늘 아래에서 - 아바키오\1408345310454878348_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1408345310454878348_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1408345310454878348_embed_0_video.jpg)

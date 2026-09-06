@@ -2,8 +2,8 @@
 
 ### [2025-07-04T03:23:13.444000+00:00] pappasco
 https://youtu.be/bdWL6IIz5F8?si=hM89D5w3z35nqCoU
-- 첨부: `생각하는\집중력 높이기 - 마음챙김 RAIN 명상\1390533383318143099_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\집중력 높이기 - 마음챙김 RAIN 명상\1390533383318143099_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1390533383318143099_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1390533383318143099_embed_0_video.jpg)
 
 ### [2025-12-21T12:43:23.087000+00:00] pappasco
 ⚡️ 핵심 요약

@@ -4,5 +4,5 @@
 https://youtube.com/watch?v=N9iPnVIQ1so
 
 지금도 좋고 나중도 좋아야 한다
-- 첨부: `생각하는\1587회 아무것도 하기 싫고 계속 자고 싶고\1446282823420870769_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\1587회 아무것도 하기 싫고 계속 자고 싶고\1446282823420870769_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1446282823420870769_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1446282823420870769_embed_0_video.jpg)

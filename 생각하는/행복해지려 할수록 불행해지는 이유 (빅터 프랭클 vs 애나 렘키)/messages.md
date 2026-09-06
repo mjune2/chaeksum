@@ -3,8 +3,8 @@
 ### [2025-12-30T08:06:37.440000+00:00] pappasco
 https://youtu.be/RSvhTWWExGk?si=wTYcREnMlQmJyO7d
 사람은 꿈을 꾸며 사는 존재
-- 첨부: `생각하는\행복해지려 할수록 불행해지는 이유 (빅터 프랭클 vs 애나 렘키)\1455472131189112928_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\행복해지려 할수록 불행해지는 이유 (빅터 프랭클 vs 애나 렘키)\1455472131189112928_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1455472131189112928_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1455472131189112928_embed_0_video.jpg)
 
 ### [2025-12-30T08:08:09.921000+00:00] pappasco
 삶의 의미를 만들어보자

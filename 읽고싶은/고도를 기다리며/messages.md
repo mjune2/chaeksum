@@ -5,8 +5,8 @@
 
 https://youtu.be/OOmATY7rG_8
 서울대에서 다짜고짜 책 추천해달라는 초등학생 | ODG
-- 첨부: `읽고싶은\고도를 기다리며\1392468076624089098_embed_0_thumbnail.jpg`
-- 첨부: `읽고싶은\고도를 기다리며\1392468076624089098_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1392468076624089098_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1392468076624089098_embed_0_video.jpg)
 
 ### [2025-07-09T11:32:06.665000+00:00] pappasco
 고도를 기다리며

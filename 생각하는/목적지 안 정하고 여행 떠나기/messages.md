@@ -6,5 +6,5 @@ https://youtu.be/7xzecoHi7cs?si=8aiBRJzns45gH3c3
 아무도 시키거나 강요하지 않았는데
 이런 일에도 부담이 생기고 게을러진다
 인간은 참 신기해
-- 첨부: `생각하는\목적지 안 정하고 여행 떠나기\1416735398226559027_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\목적지 안 정하고 여행 떠나기\1416735398226559027_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1416735398226559027_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1416735398226559027_embed_0_video.jpg)

@@ -4,5 +4,5 @@
 https://youtu.be/8THcFNBo8UI?si=OGFwNO--ujSIrUYw
 
 만화가가 되는 것보다 중요한 건 만화가로 사는 것
-- 첨부: `생각하는\늦었다고 생각하는 작가에게 꼭 하고 싶은 말\1508842543465500762_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\늦었다고 생각하는 작가에게 꼭 하고 싶은 말\1508842543465500762_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1508842543465500762_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1508842543465500762_embed_0_video.jpg)

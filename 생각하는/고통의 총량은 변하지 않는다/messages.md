@@ -8,4 +8,4 @@ https://www.kyobo.com/dgt/web/kbstory/contents/detail/1879
 흙이 팔다리를 가져가고 나서야 
 우리는 비로소 진정한 춤을추리라 
 칼릴 지브란.
-- 첨부: `생각하는\고통의 총량은 변하지 않는다\1526257766581276774_embed_0_thumbnail.jpg`
+![embed_0_thumbnail.jpg](1526257766581276774_embed_0_thumbnail.jpg)

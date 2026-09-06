@@ -5,5 +5,5 @@ https://youtu.be/S9XjBrdsxlg
 
 정상에서 자세히보니까
 그 길이 아닌 네다섯개의 길이 보이더라
-- 첨부: `생각하는\꿈에 그리던 그 분을 만난 E SENS의 진심어린 질문\1404392919397437440_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\꿈에 그리던 그 분을 만난 E SENS의 진심어린 질문\1404392919397437440_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1404392919397437440_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1404392919397437440_embed_0_video.jpg)

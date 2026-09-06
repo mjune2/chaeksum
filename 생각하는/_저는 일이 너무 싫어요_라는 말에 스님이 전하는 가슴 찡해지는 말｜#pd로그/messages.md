@@ -4,5 +4,5 @@
 https://youtu.be/0a5eq6Kr2CM?si=qtj3JyDgLyOEkD5O
 
 자기 할 일은 스스로 해야지. 남이 시키는일을 한다는건 무지힘든 일이다. 그게 자기일이 아니니까.
-- 첨부: `생각하는\_저는 일이 너무 싫어요_라는 말에 스님이 전하는 가슴 찡해지는 말｜#pd로그\1405801674638884875_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\_저는 일이 너무 싫어요_라는 말에 스님이 전하는 가슴 찡해지는 말｜#pd로그\1405801674638884875_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1405801674638884875_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1405801674638884875_embed_0_video.jpg)

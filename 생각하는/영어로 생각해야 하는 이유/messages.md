@@ -5,5 +5,5 @@ https://youtu.be/pTnphfyRP9g
 
 마음이 움직이는 우리말
 이성적인 생각은 외국어
-- 첨부: `생각하는\영어로 생각해야 하는 이유\1526633379519402145_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\영어로 생각해야 하는 이유\1526633379519402145_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1526633379519402145_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1526633379519402145_embed_0_video.jpg)

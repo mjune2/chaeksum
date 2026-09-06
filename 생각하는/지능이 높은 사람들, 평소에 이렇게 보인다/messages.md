@@ -8,5 +8,5 @@ https://youtu.be/ANdF3wZZufY
 시스템적 사고 - 눈앞결과 이상의 상황을 고려함
 요약 - 회의서 안건,결론,다음행동 내놓음
 확률적사고 - 의사결정시 숙고
-- 첨부: `생각하는\지능이 높은 사람들, 평소에 이렇게 보인다\1403591682850553897_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\지능이 높은 사람들, 평소에 이렇게 보인다\1403591682850553897_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1403591682850553897_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1403591682850553897_embed_0_video.jpg)

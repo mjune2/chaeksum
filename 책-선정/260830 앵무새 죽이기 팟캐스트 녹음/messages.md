@@ -11,10 +11,10 @@
 https://youtu.be/D2mSsdYWWfs?si=o_SEJs2MAYsXNEhF
 2부 - 자유 대화, 발문 답변
 https://youtu.be/OHChd6wob3U?si=Cz_-c-tOE55lEq_g
-- 첨부: `책-선정\260830 앵무새 죽이기 팟캐스트 녹음\1546131715217432616_embed_0_thumbnail.jpg`
-- 첨부: `책-선정\260830 앵무새 죽이기 팟캐스트 녹음\1546131715217432616_embed_0_video.jpg`
-- 첨부: `책-선정\260830 앵무새 죽이기 팟캐스트 녹음\1546131715217432616_embed_1_thumbnail.jpg`
-- 첨부: `책-선정\260830 앵무새 죽이기 팟캐스트 녹음\1546131715217432616_embed_1_video.jpg`
+![embed_0_thumbnail.jpg](1546131715217432616_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1546131715217432616_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1546131715217432616_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1546131715217432616_embed_1_video.jpg)
 
 ### [2026-09-06T12:18:19.981000+00:00] pappasco
 📚 8/30(일) 『앵무새 죽이기』 오프라인 팟캐스트 모임 안내

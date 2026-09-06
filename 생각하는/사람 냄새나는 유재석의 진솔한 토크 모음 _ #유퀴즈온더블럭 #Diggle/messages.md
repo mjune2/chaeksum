@@ -4,5 +4,5 @@
 https://youtu.be/lcxbmkHxX2I?si=AAwYyo47h4TMeHFw
 
 막상 찾아보면 정말 없는 잔잔하고 뜨거운 사람
-- 첨부: `생각하는\사람 냄새나는 유재석의 진솔한 토크 모음 _ #유퀴즈온더블럭 #Diggle\1429827002172440626_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\사람 냄새나는 유재석의 진솔한 토크 모음 _ #유퀴즈온더블럭 #Diggle\1429827002172440626_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1429827002172440626_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1429827002172440626_embed_0_video.jpg)

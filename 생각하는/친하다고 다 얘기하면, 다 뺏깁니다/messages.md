@@ -6,5 +6,5 @@ https://youtu.be/87dXwVCLapo
 돈
 험담
 솔직히
-- 첨부: `생각하는\친하다고 다 얘기하면, 다 뺏깁니다\1525312338884821072_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\친하다고 다 얘기하면, 다 뺏깁니다\1525312338884821072_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1525312338884821072_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1525312338884821072_embed_0_video.jpg)

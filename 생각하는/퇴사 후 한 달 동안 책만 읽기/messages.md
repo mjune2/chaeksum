@@ -5,5 +5,5 @@ https://youtu.be/szhh3VsJbS0
 
 결국 책은 도구다.
 읽은 다음에 내가 어떻게 달라지느냐 거든.
-- 첨부: `생각하는\퇴사 후 한 달 동안 책만 읽기\1413834450097274891_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\퇴사 후 한 달 동안 책만 읽기\1413834450097274891_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1413834450097274891_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1413834450097274891_embed_0_video.jpg)

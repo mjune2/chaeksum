@@ -2,8 +2,8 @@
 
 ### [2025-07-11T08:12:59.778000+00:00] pappasco
 https://youtu.be/RNdK0iSpWDk?si=1h9GS0pSvUZA6Woo
-- 첨부: `생각하는\2025 포카리스웨트 '너는 분명, 누군가의 태양' 코멘터리\1393143021947588749_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\2025 포카리스웨트 '너는 분명, 누군가의 태양' 코멘터리\1393143021947588749_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1393143021947588749_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1393143021947588749_embed_0_video.jpg)
 
 ### [2025-07-11T08:13:43.103000+00:00] pappasco
 시대정신

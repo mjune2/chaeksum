@@ -12,7 +12,7 @@ https://youtu.be/tLpfhASO0oE?si=_cFXHT6ZZwZmsLjA
 모두 즐거운 하루 시작하시고 앞으로도 좋은일 가득하시기를 바라겠습니다!
 
 https://www.youtube.com/watch?v=tLpfhASO0oE
-- 첨부: `생각하는\지식채널e - 실패가 두려운 당신에게_#001\1427226548448002099_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\지식채널e - 실패가 두려운 당신에게_#001\1427226548448002099_embed_0_video.jpg`
-- 첨부: `생각하는\지식채널e - 실패가 두려운 당신에게_#001\1427226548448002099_embed_1_thumbnail.jpg`
-- 첨부: `생각하는\지식채널e - 실패가 두려운 당신에게_#001\1427226548448002099_embed_1_video.jpg`
+![embed_0_thumbnail.jpg](1427226548448002099_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1427226548448002099_embed_0_video.jpg)
+![embed_1_thumbnail.jpg](1427226548448002099_embed_1_thumbnail.jpg)
+![embed_1_video.jpg](1427226548448002099_embed_1_video.jpg)

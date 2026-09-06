@@ -4,8 +4,8 @@
 마이클 이스터
 
 https://youtu.be/BSNWzfB0-QY?si=VsZwsEjvZYi2ag26 이동진 평론가 추천
-- 첨부: `읽고싶은\편안함의 습격\1399977858700411000_embed_0_thumbnail.jpg`
-- 첨부: `읽고싶은\편안함의 습격\1399977858700411000_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1399977858700411000_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1399977858700411000_embed_0_video.jpg)
 
 ### [2025-07-30T04:55:45.480000+00:00] pappasco
 우리에게 깊숙하게 침윤이 되어서 이것이 문제라고 느끼지도 못하는 일상에서 수많은 편안함에 대한 단계들이 있을 것입니다.

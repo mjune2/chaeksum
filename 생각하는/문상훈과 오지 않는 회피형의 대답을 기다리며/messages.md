@@ -4,5 +4,5 @@
 https://youtube.com/watch?v=QaVXYV6SZN0&t=1019
 
 이거 내가 널 때리는 것도 계획해봐
-- 첨부: `생각하는\문상훈과 오지 않는 회피형의 대답을 기다리며\1468758129662627940_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\문상훈과 오지 않는 회피형의 대답을 기다리며\1468758129662627940_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1468758129662627940_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1468758129662627940_embed_0_video.jpg)

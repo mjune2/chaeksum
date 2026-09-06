@@ -5,5 +5,5 @@ https://youtu.be/8UY4T24xaa8?si=x3dP1dHLHpE3lYtT
 
 이건 정말 마법 같아요.
 그래서 저는 마법을 해내려고요. 정말 멋진 일이 될 겁니다.
-- 첨부: `생각하는\일론 머스크 명언 l '350조원' 벌고 느낀, 돈 많아봤자 의미 없는 이유\1429828088908480662_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\일론 머스크 명언 l '350조원' 벌고 느낀, 돈 많아봤자 의미 없는 이유\1429828088908480662_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1429828088908480662_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1429828088908480662_embed_0_video.jpg)

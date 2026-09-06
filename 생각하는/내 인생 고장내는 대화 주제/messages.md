@@ -4,5 +4,5 @@
 https://youtu.be/mZVsiHK2Pkg
 
 믿을 만한 사람이라는 신뢰
-- 첨부: `생각하는\내 인생 고장내는 대화 주제\1425848507230720040_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\내 인생 고장내는 대화 주제\1425848507230720040_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1425848507230720040_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1425848507230720040_embed_0_video.jpg)

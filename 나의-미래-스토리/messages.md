@@ -2,8 +2,8 @@
 
 ### [2025-07-07T10:55:38.988000+00:00] pappasco
 https://youtube.com/shorts/lXUZ5MxbNcM?feature=share
-- 첨부: `나의-미래-스토리\1391734403578855485_embed_0_thumbnail.jpg`
-- 첨부: `나의-미래-스토리\1391734403578855485_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1391734403578855485_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1391734403578855485_embed_0_video.jpg)
 
 ### [2025-09-05T21:45:08.339000+00:00] pappasco
 재도전학교 100일 기념으로 그동안의 활동사진, 도전들을 모아서 영상으로 만들어봤어요. 
@@ -11,7 +11,7 @@ https://youtube.com/shorts/lXUZ5MxbNcM?feature=share
 100일되는 토욜에 전체 단톡방에 올릴 짧은검열판 두개 만들었는데요.
 특별히 책모임방 영상을 3일전에 먼저 여기 공유해봐요. 보시고 감상평 얘기주시면 즐거울지도?
 https://naver.me/FqZIvtsJ
-- 첨부: `나의-미래-스토리\1413641124819505182_embed_0_thumbnail.jpg`
+![embed_0_thumbnail.jpg](1413641124819505182_embed_0_thumbnail.jpg)
 
 ### [2025-09-05T21:45:34.260000+00:00] pappasco
 https://youtube.com/shorts/rlXglyF33vk?feature=shared
@@ -22,5 +22,5 @@ https://youtube.com/shorts/rlXglyF33vk?feature=shared
 모두의 마땅히 살아야 할 삶을 응원합니다. (폭죽)👍👍(폭죽)
 
 ps. 꾸준히 도전 실천으로 단톡방을 밝혀주시는 보식님, 상록님, 율브리너님, 종완 반장님, 소모임 책숨 멤버분들, 재도전학교 운영팀에게 특별히 감사함을 전합니다. 제 자신의 선포를 잊지않고 지켜나가는데 큰 힘이 되주셨습니다.
-- 첨부: `나의-미래-스토리\1413641233540186112_embed_0_thumbnail.jpg`
-- 첨부: `나의-미래-스토리\1413641233540186112_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1413641233540186112_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1413641233540186112_embed_0_video.jpg)

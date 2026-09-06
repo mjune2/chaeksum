@@ -4,5 +4,5 @@
 https://youtu.be/EDwIHbML0Zw?t=393
 
 위너 이펙트
-- 첨부: `생각하는\맨날 미루는 사람들 꼭 보세요_ 게으름에서 벗어나 갑자기 성실해지는 방법 (황농문 교수 통합본)\1443818239854510112_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\맨날 미루는 사람들 꼭 보세요_ 게으름에서 벗어나 갑자기 성실해지는 방법 (황농문 교수 통합본)\1443818239854510112_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1443818239854510112_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1443818239854510112_embed_0_video.jpg)

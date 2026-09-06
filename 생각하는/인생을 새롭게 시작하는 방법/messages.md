@@ -8,5 +8,5 @@ https://youtu.be/o-0q0bHVP6g?si=ags82sPThHeYm5-6
 그리고 그것은 모두 당신의 것이다 
 이것이야말로 가장 귀중한 재산이다
 - 책 '하루 24시간 어떻게 살 것인가' 아놀드 베넷
-- 첨부: `생각하는\인생을 새롭게 시작하는 방법\1470042814246027366_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\인생을 새롭게 시작하는 방법\1470042814246027366_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1470042814246027366_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1470042814246027366_embed_0_video.jpg)

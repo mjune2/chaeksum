@@ -4,5 +4,5 @@
 https://youtu.be/gCyBpRVc0ms
 
 당연하다 생각해도 들어주는 마음을 가지기
-- 첨부: `생각하는\'또라이' 취급당한 천재들\1394542989400997908_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\'또라이' 취급당한 천재들\1394542989400997908_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1394542989400997908_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1394542989400997908_embed_0_video.jpg)

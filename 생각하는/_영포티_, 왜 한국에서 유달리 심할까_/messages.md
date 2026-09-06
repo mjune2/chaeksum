@@ -4,5 +4,5 @@
 https://youtu.be/JrCysLLOxjs
 취향은 자유롭게 태도는 성숙하게
 내가 좋아함에 대해 철없다며 주눅들지말기
-- 첨부: `생각하는\_영포티_, 왜 한국에서 유달리 심할까_\1476965678396215358_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\_영포티_, 왜 한국에서 유달리 심할까_\1476965678396215358_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1476965678396215358_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1476965678396215358_embed_0_video.jpg)

@@ -5,8 +5,8 @@ https://product.kyobobook.co.kr/detail/S000217595811
 ADHD인이 ADHD인을 위해 쓴 책
 
 유튜브 https://youtu.be/UCnbPuOsv1w?si=Q7W_9Q8ahnZ9ScJq 를 봤다. 나는 완전 adhd 였다. 이 책을 보고 교정해볼까 한다.
-- 첨부: `읽고싶은\나는 내가 고장 난 줄 알았다\1435289148465610924_embed_0_thumbnail.jpg`
-- 첨부: `읽고싶은\나는 내가 고장 난 줄 알았다\1435289148465610924_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1435289148465610924_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1435289148465610924_embed_0_video.jpg)
 
 ### [2025-11-04T15:34:00.974000+00:00] pappasco
 번아웃 관리 및 극복 방법

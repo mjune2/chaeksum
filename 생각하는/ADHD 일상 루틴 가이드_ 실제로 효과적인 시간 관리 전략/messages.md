@@ -42,4 +42,4 @@ https://ticktick.com/resources/article/7349349926578421760/adhd-time-management
 잠자기 30분 전에는 스크린을 피하세요
 
 수면 의식을 따르세요: 하루 복습, 휴대폰 무음 설정, 잠자리에 들기
-- 첨부: `생각하는\ADHD 일상 루틴 가이드_ 실제로 효과적인 시간 관리 전략\1456160810022998219_embed_0_thumbnail.png`
+![embed_0_thumbnail.png](1456160810022998219_embed_0_thumbnail.png)

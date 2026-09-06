@@ -7,5 +7,5 @@ https://youtu.be/vBhc_zXAtvY
 
 타인은 고려하지 않고 자기 위주로 말하는 사람 
 타인만 생각해서 자기 생각이 없는 사람
-- 첨부: `생각하는\능력도 없으면서 말만 번지르르한 사람들이 애써 숨기는 심리 _ 인간 설명서 EP.13\1418828762031587348_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\능력도 없으면서 말만 번지르르한 사람들이 애써 숨기는 심리 _ 인간 설명서 EP.13\1418828762031587348_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1418828762031587348_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1418828762031587348_embed_0_video.jpg)

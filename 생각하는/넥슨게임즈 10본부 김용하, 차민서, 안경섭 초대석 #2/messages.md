@@ -9,5 +9,5 @@ https://youtu.be/uSYZuR18I9c?t=105
 라는 믿음으로 가는거죠
 
 남의 입맛을 맞추는건 어려운일이다. 내 입맛을 믿자.
-- 첨부: `생각하는\넥슨게임즈 10본부 김용하, 차민서, 안경섭 초대석 #2\1395676770702987264_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\넥슨게임즈 10본부 김용하, 차민서, 안경섭 초대석 #2\1395676770702987264_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1395676770702987264_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1395676770702987264_embed_0_video.jpg)

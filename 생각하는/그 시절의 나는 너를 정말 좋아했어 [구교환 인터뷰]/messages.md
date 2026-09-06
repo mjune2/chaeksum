@@ -4,5 +4,5 @@
 https://youtu.be/vzDHBUFAwQw?si=BTRo9-n_VJweMe3G&t=3647
 
 그때의 실패들이 다 가짜 실패였구나
-- 첨부: `생각하는\그 시절의 나는 너를 정말 좋아했어 [구교환 인터뷰]\1462064731358494770_embed_0_thumbnail.jpg`
-- 첨부: `생각하는\그 시절의 나는 너를 정말 좋아했어 [구교환 인터뷰]\1462064731358494770_embed_0_video.jpg`
+![embed_0_thumbnail.jpg](1462064731358494770_embed_0_thumbnail.jpg)
+![embed_0_video.jpg](1462064731358494770_embed_0_video.jpg)
