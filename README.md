@@ -3,7 +3,9 @@
 책.숨(책 속에 숨겨진 나를 만나다) 
 책과 삶에 대해 숨쉬는 공간입니다.
 
-![10_11300_09018.jpg](1391709616274018364_10_11300_09018.jpg)
+
+<img width="400" height="296" alt="image" src="https://github.com/user-attachments/assets/c13571b7-0ade-44fb-acd3-972dd7491657" />
+
 
 <침해할 수 없는 독자의 권리>
 
@@ -23,4 +25,5 @@
 ― 다니엘 페나크 『소설처럼』 중에서
 
 
-![1749466758264.png](1415602505718567003_1749466758264.png)
+
+<img width="443" height="749" alt="image" src="https://github.com/user-attachments/assets/48129936-d013-4cec-beba-5a24b3b7c154" />
